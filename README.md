@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sameer769
+- 👀 I’m interested in new python projects
+- 🌱 I’m currently learning python and ads
+- 💞️ I’m looking to collaborate on new projects
+- 📫 How to reach me - E-mail- sayyedsameer182@gmail.com
